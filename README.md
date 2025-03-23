@@ -1,3 +1,4 @@
+# RUINING ALL SCP SL SERVERS ALIKE SINCE 2025™️
 ## some info about me
 professional dumbass - i luv gaming, been an scp nerd since like 2020 (i dont know a tad bit about the lore), rn i have no projects :p so silly ikr; rally fan
 
